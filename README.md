@@ -1,2 +1,0 @@
-# SubstituteStudent.github.io
-Website
